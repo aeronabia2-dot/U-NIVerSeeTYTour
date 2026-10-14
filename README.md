@@ -1,2 +1,0 @@
-# U-NIVerSeeTYTour
-for activity
